@@ -31,7 +31,7 @@
   https://ttglw.com
 
 - 最新备用网址（免翻墙）  
-  http:/ttglw6.com
+  http:/ttglw88.com
 - 备用访问地址（免翻墙）  
   http://ttglw8.com
 
