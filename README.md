@@ -56,7 +56,7 @@ https://github.com/ttglw.com
 
 ### 邮箱自动回复
 发送任意邮件至：  
-chiguatiantang@gmail.com  
+bendpluemlue@gmail.com 
 
 系统将自动回复最新地址信息。
 
@@ -70,5 +70,5 @@ chiguatiantang@gmail.com
 ---
 
 <p align="center">
-  © 2026 91爆料网 · All Rights Reserved
+  © 2026 天天瓜料网 · All Rights Reserved
 </p>
