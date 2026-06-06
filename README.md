@@ -30,8 +30,8 @@
 - 永久官网（需翻墙）  
   https://ttglw.com
 
-- 最新备用网址（免翻墙）  
-  http:/ttglw88.com
+- 最新入口  
+  http:/ttgl2.com
 - 备用访问地址（免翻墙）  
   http://ttglw8.com
 
