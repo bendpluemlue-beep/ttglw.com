@@ -28,7 +28,7 @@
 为保障稳定访问，请使用以下官方地址：
 
 - 永久官网（需翻墙）  
-  https://ttglw.com
+  https://ttglw6.com
 
 - 最新入口  
   http:/ttgl2.com
