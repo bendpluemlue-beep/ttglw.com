@@ -40,7 +40,7 @@
 ## 官方渠道
 
 - Telegram 商务合作  
-  https://t1t1.com  
+  https://p4n2m.t6vhns-t1t1.icu 
 
 - 官方 X（Twitter）账号  
   https://x.com/ttglw1688 
