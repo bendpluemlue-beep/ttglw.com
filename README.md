@@ -40,7 +40,7 @@
 ## 官方渠道
 
 - Telegram 商务合作  
-  [https://p4n2m.t6vhns-t1t1.icu ](https://u5m8n.3bidl4-t1t1.icu?channel=HDXY001)
+  https://u5m8n.3bidl4-t1t1.icu?channel=HDXY001
 
 - 官方 X（Twitter）账号  
   https://x.com/ttglw1688 
